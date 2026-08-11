@@ -1,0 +1,1 @@
+﻿# POPIA Registration Checklist
